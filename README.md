@@ -1,16 +1,11 @@
-## Hi there 👋
-
-<!--
-**aventurinekisser/aventurinekisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## kins
+the me(s) if you even care (i kin for fun & dgaf abt doubles!! we should all kiss instead /j):
+1. Xiao
+2. Diluc
+3. Albedo
+4. Dan Heng
+5. Mikaela Hyakuya
+6. **Jamil Viper**
+7. Ciel Phantomhive
+9. Padparadscha (HnK)
++ more..
