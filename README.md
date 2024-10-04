@@ -1,4 +1,4 @@
-## kins
+## don't be afraid to int / c + h !!
 the me(s) if you even care (i kin for fun & dgaf abt doubles!! we should all kiss instead /j):
 1. Xiao
 2. Diluc
