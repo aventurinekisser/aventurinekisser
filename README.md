@@ -6,6 +6,9 @@ and more unlisted..
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
      
-INTERESTS (pls int if we share more than 1 interest..):
+MAIN INTERESTS (pls int if we share more than 1 interest..):
 
-**Sonic the Hedgehog**, **Devil May Cry**, **Monster Hunter**, ULTRAKILL, Lies of P, HSR, ZZZ, MLP, Barbie, Paradox Live, WildRift/LoL/Arcane, Creatures of Sonaria, Houseki no Kuni, Sky:CoTL, IDV, Trigun, Metal Gear series, FF7 and 15, TWST, Link Click, Fragaria Memories, Hellsing, Owari no Seraph, PGR, Aikatsu!, Enstars (sorta), Baka to Test, Hyperdimension Neptune, Black Butler, Black Bullet, Digimon, Obey Me!, A Date with Death, +TBA
+**Sonic the Hedgehog**, **Devil May Cry**, **Monster Hunter**, ULTRAKILL, HSR, ZZZ, MLP, Barbie, Creatures of Sonaria, Houseki no Kuni, Sky:CoTL, Metal Gear series, TWST, Link Click, Hellsing, Owari no Seraph, Aikatsu!, Black Butler, Black Bullet, Gokurakugai, +TBA
+
+I also know:
+Enstars, Obey Me!, A Date with Death, Into the Red Fog, Tower of God, Digimon, Baka to Test, Hyperdimension Neptune, PGR, Lies of P, Paradox Live, WildRift/LoL/Arcane, IDV, Trigun, FF7 and 15, Fragaria Memories, +TBA
