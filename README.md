@@ -2,7 +2,7 @@
 the me(s) if you care (i kin for fun & dgaf abt doubles!! we should all kiss instead. heh..):
 
 Xiao, Diluc, Albedo, Dan Heng, Mikaela Hyakuya, **Jamil Viper**, Ciel Phantomhive, Padparadscha (HnK), Lu Guang, Stardust cookie
-and more unlisted..
++ more unlisted..
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
      
